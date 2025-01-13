@@ -12,4 +12,4 @@ Enjoy!
 
 If you like this repo, be sure to ⭐ it.
 
-**[All projects link](https://github.com/Padma-78)**
+**[All projects link](https://github.com/Paadmaa)**
